@@ -1,4 +1,4 @@
-   Hi, I’m Christine🖤
+   Hi, I’m Christine!✨
 - 👀 I’m interested in reading fiction 
 - 🌱 I’m currently learning how to code in uni 🤪
 - 😄 Pronouns: she/her
